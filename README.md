@@ -6,7 +6,7 @@
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
 - 🥅 Next Goals: Contribute more to the community
-- ⚡ Fun fact: I love to think and sing with a guitar
+- ⚡ Fun fact: I love to think
 
 ### Connect with me:
 
